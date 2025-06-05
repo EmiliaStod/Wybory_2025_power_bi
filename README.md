@@ -1,0 +1,1 @@
+# Wybory_2025_power_bi
